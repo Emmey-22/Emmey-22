@@ -27,4 +27,4 @@ I'm a passionate Computer Science student with a strong interest in  data analyt
 ## Let's Connect
 
 - [Twitter/X](https://x.com/temmytops614259?t=HdBQESuQgDXLrc_trIl3kw&s=09)  
-- [GitHub Profile](https://github.com/Emmey-22)]
+- [GitHub Profile](https://github.com/Emmey-22)
